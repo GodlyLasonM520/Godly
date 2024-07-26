@@ -1,9 +1,9 @@
-Hi 👋 i'm Kishore Kaarthik
-Hi i'm Kishore Kaarthik
+Hi 👋 i'm Godly LasonM
+Hi i'm Godly LasonM
 ========================================================================================================================================
 
 * Chennai
-* Ping me at [skishorekaarthik@gmail.com](mailto:skishorekaarthik@gmail.com)
+* Ping me at [godlylason.m.com](mailto:godlylason.m@gmail.com)
 
 ### Skills
 <p align="left">
